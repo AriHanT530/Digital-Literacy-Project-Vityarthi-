@@ -13,7 +13,9 @@ Maintain a professional image, especially for career growth
 Use social media for learning, 
 networking, and skill-building Do not waste excessive time that affects studies and health 
 
+
 Dont's
+
 Do not share sensitive details like passwords, address, or phone number 
  
 
